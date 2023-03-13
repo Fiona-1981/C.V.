@@ -19,7 +19,7 @@ Codewars: https://www.codewars.com/users/Fiona-1981
 ## Work Experience
 
 I've spent over twenty-two years in the media industry. Bringing people together through humour, finding out people's interests and creating strong team bonds that outlast employment. 
-My work has been varied, including radio, television, advertising and post produciton. I've seen a lot. I can mentor inexperienced people and hold my ground with the bigwigs. My next employer won't need to ease me in to non-technical matters, let's just cut straight to the job please!
+My work has been varied, including radio, television, advertising and post production. I've seen a lot. I can mentor inexperienced people and hold my ground with the bigwigs. My next employer won't need to ease me in to non-technical matters, let's just cut straight to the job please!
 
 Tag Worldwide, November 2015 to November 2022
 Business Affairs Manager
